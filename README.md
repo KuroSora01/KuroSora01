@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KuroSora01
+- 👀 I’m interested in anime, coding, and medicine
+- 🌱 I’m currently learning algoryhtms and structure of data and preparing for ENEM in Brazil
+- 📫 How to reach me: just send me a email, it is in my profile
